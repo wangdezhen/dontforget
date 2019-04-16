@@ -9,6 +9,10 @@
 
 ###  相关新闻
 
+**央视评奔驰车主维权:有些企业的行为必须得到纠正**
+
+<http://news.sina.com.cn/s/2019-04-15/doc-ihvhiewr6093563.shtml>
+
 **奔驰女车主拒绝先道歉退款：以次充好依法是假一赔三**
 
 <https://finance.sina.com.cn/chanjing/gsnews/2019-04-15/doc-ihvhiqax2685677.shtml>
